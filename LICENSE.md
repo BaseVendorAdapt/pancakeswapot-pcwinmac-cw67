@@ -1,4 +1,4 @@
-# 
+# مفتوح المصدر pancakeswap trading bot إضافات لـ Mac OS | فوري pancakeswap trading bot إضافات لـ PC Windows. مع اكتشاف الاختراق و تخزين البيانات المؤقت — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
